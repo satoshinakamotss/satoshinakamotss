@@ -1,0 +1,4 @@
+- 👋 Hi, I’m satoshinakamoto
+- 👀 I am interested in working with people and helping with coin mining- 🌱 I’m currently learning 
+- 💞️ I am looking to cooperate in mining coins together and earn money from them with you
+- - 📫  contact me on telegram : contact me on telegram +81 80 6133 9192
